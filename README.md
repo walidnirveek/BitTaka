@@ -1,2 +1,2 @@
 # BitTaka
-Bangladeshi Bitcoin Currency Based On Taka.
+Bangladeshi Bitcoin Currency Based On Taka.Taka is the Currency of Bangladesh. bangladshi People are use taka For exchange their daily monitary needs.We the Blockchain Conmpany of Bangladsh are Plan To Develop a Crypto Currency For Bangladsh Economic Sector BoomFlashing. Everywhere Crypto make Its Own Place For Expanding its IT Infructure.So Bitcoin Make It Better. BitTaka is The One of the Currency Which is Use For Every Monitary Transaction.  
